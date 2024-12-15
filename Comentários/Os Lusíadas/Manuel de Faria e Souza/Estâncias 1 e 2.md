@@ -14,6 +14,8 @@ Em perigos e guerras esforçados<br>
 Mais do que prometia a força humana,<br>
 E entre gente remota edificaram<br>
 Novo Reino, que tanto sublimaram;
+
+
 ### Estância 2ª
 >E também as memórias gloriosas<br>
 Daqueles Reis que foram dilatando<br>
