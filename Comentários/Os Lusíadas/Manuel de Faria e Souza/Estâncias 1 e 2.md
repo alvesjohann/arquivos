@@ -1,3 +1,5 @@
+# Comentários de Manuel de Faria e Souza a Os Lusíadas
+
 Transcrição a partir do [texto disponível no acervo da Biblioteca do Congresso](https://www.loc.gov/resource/rbc0001.2008gen91980/?sp=204) (Washington, DC — USA)
 
 *Fora erros de digitação e transcrição, o que a partir daqui se lê é tudo de Manuel de Faria e Souza.*
