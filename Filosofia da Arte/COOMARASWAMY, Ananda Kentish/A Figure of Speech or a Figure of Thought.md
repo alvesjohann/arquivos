@@ -1,4 +1,4 @@
-# A Figure os Speech or a Figure of Though?[<sup>1</sup>](#1)<br>by *Ananda K. Coomaraswamy*
+# A Figure os Speech or a Figure of Though?<a id="note1"></a>[<sup>1</sup>](#1)<br>by *Ananda K. Coomaraswamy*
 #### This essay was written for *Figures of Speech or Figures of Thought: Collected Essays on the Traditional or "Normal" View of Art* (London, 1946.—ED.)
 
 >*"Egô de technên ou kalô, ho an ê alogon pragma."*<br>— Plato, *Gorgias* 465A<a id="note2"></a>[<sup>2</sup>](#2)
@@ -42,7 +42,7 @@ Now what are all these arts for? Always and only to supply a real or an imagined
 
 ## Notes
 ##### 1
-Quintilian IX.4.117, "Figura? Quae? com orationis, turn etiam sententiae?" Cf. Plato, Replubic 601B. [↑](#a-figure-os-speech-or-a-figure-of-though1)
+Quintilian IX.4.117, "Figura? Quae? com orationis, turn etiam sententiae?" Cf. Plato, Replubic 601B. [↑](#note1)
 ##### 2
 "I cannot fairly give the name of 'art' to anything irrational". Cf. *Laws* 890D, "Law and art are children of the intellect" (*nous*). Sensation (*aisthêsis*) and pleasure (*hêdône*) are irrational (alogos, see *Timaeus* 28A, 47D, 69D). In the *Gorgias*, the irrational is that which cannot give an account of itself, that which is unreasonable, has no *raison d'être*. See also Philo, *Legum Allegoriarum* I.48, "For as grass is the fod of irrational beings, so has the sensibly-perceptible (*to aisthêton*) ben assigned to the irrational part of the soul". *Aisthêsis* is just what the biologist now calls "irritability". [↑](#note2)
 ##### 3
