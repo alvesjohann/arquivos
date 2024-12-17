@@ -1,5 +1,5 @@
-# A Figure os Speech or a Figure of Though?<a id="note1"></a>[<sup>1</sup>](#1)<br>by *Ananda K. Coomaraswamy*
-#### [This essay was written for *Figures of Speech or Figures of Thought: Collected Essays on the Traditional or "Normal" View of Art* (London, 1946.—ED.)]
+# A Figure of Speech or a Figure of Though?<a id="note1"></a>[<sup>1</sup>](#1)<br>by *Ananda K. Coomaraswamy*
+#### This essay was written for *Figures of Speech or Figures of Thought: Collected Essays on the Traditional or "Normal" View of Art* (London, 1946.—ED.)
 
 >*"Egô de technên ou kalô, ho an ê alogon pragma."*<br>— Plato, *Gorgias* 465A<a id="note2"></a>[<sup>2</sup>](#2)
 
