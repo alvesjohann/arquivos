@@ -19,12 +19,26 @@ All our sources are conscious of the fundamental identity of all the arts. Plato
 
 Now what are all these arts for? Always and only to supply a real or an imagined need or deficiency on the part of the human patron, for whom as the collective consumer the artist works.[<sup>13</sup>](#13)<a id="note13"></a> When he is working for himself, the artist as a human being is also a consumer. The necessities to be served by art may appear to be material *or* spiritual, but as Plato insists, it is one and the same art — or a combination of both arts, practical and philosophical—that must serve both body and soul if it is to be admitted in the ideal City.[<sup>14</sup>](#14)<a id="note14"></a> We shall see presently that to propose to serve the two ends separately is the peculiar symptom of our modern "heartlessness". Our distinction of "fine" from "applied" art (ridiculous, because the fine art itself is applied to giving pleasure) is as though "not by bread alone"[<sup>15</sup>](#15)<a id="note15"></a> had meant "by cake" for the elite that go to exhibitions and "bread alone" for the majority and usually for all. Plato’s music and gymnastics, which correspond to what we seem to intend by "fine" and "applied" art (since one is for the soul and the other for the body), are never divorced in his theory of education; to follow one alone leads to effeminacy, to follow only the other, to brutality; the tender artist is no more a man than the tough athlete; music must be realized in bodily graces, and physical power should be exercised only in measured, not in violent motions.[<sup>16</sup>](#16)<a id="note16"></a>
 
+It would be superfluous to explain what are the material necessities to be served by art: we need only remember that a censorship of what ought or ought not to be made at all should correspond to our knowledge of what is good or bad for us. It is clear that a wise government, even a government of the free by the free, cannot permit the manufacture and sale of products that are necessarily injurious, however profitable such manufacture may be to those whose interest it is to sell, but must insist upon those standards of living to secure which was once the function of the guilds and of the individual artist "inclined by justice, which rectifies the will, to do his work faithfully."[<sup>17</sup>](#17)<a id="note17"></a>
+
+As for the spiritual ends of the arts, what Plato says is that we are endowed by the gods with vision and hearing, and harmony "was given by the Muses to him that can use them intellectually (*meta nou*), not as an aid to irrational pleasure (*hêdonê alogos*), as is nowadays supposed, but to assist the soul's interior revolution, to restore it to order and concord with itself. And because of the want of measure and lack of graces in most of us, rhythm was given us by the same gods for the same ends";[<sup>18</sup>](#18)<a id="note18"></a> and that while the passion (*pathê*) evoked by a composition of sounds "furnishes a pleasure-of-thesenses (*hêdonê*) to the unintelligent, it (the composition) bestows on  the intelligent that hearts ease that is induced by the imitation of the divine harmony produced in mortal motions."[<sup>19</sup>](#19)<a id="note19"></a> This last delight or gladness that is experienced when we partake of the feast of reason, which is also a communion, is not a passion but an ecstasy, a going out of ourselves and being in the spirit: a condition insusceptible of analysis in terms of the pleasure or pain that can be felt by sensitive bodies or souls.
+
+The soulful or sentimental self enjoys itself in the aesthetic surfaces of natural or artificial things, to which it is akin; the intellectual or spiritual self enjoys their order and is nourished by what in them is akin to it. The spirit is much rather a fastidious than a sensitive entity; it is not the physical qualities of things, but what is called their scent or flavor, for example "the picture not in the colors", or "the unheard music", not a sensible shape but an intelligible form, that it tastes. Plato's "hearts ease" is the same as that "intellectual beatitude" which Indian rhetoric sees in the "tasting of the flavor" of a work of art, an immediate experience, and congeneric with the tasting of God.[<sup>20</sup>](#20)<a id="note20"></a>
+
+This is, then, by no means an aesthetic or psychological experience but implies what Plato and Aristotle call a *katharsis*, and a "defeat of the sensations of pleasure" or pain.[<sup>21</sup>](#21)<a id="note21"></a> *Katharsis* is a sacrificial purgation and purification "consisting in a separation, as far as that is possible, of the soul from the body"; it is, in other words, a kind of dying, that kind of dying to which the philosopher's life is dedicated.[<sup>22</sup>](#22)<a id="note22"></a> The Platonic *katharsis* implies an ecstasy, or "standing aside" of the energetic, spiritual, and imperturbable self from the passive, aesthetic, and natural self, a "being out of oneself" that is a being "in one's right mind" and real Self, that "in-sistence" that Plato has in mind when he "would be born again in beauty inwardly", and calls this a sufficient prayer.[<sup>23</sup>](#23)<a id="note23"></a>
+
+Plato rebukes his much-beloved Homer for attributing to the gods and heroes all-too-human passions, and for the skillful imitations of these passions that are so well calculated to arouse our own "sym-pathies".[<sup>24</sup>](#24)<a id="note24"></a> The *katharsis* of Plato's City is to be effected not by such exhibitions as this, but by the banishment of artists who allow themselves to imitate all sorts of things, however shameful. Our own novelists and biographers would have been the first to go, while among modern poets it is not easy to think of any but William Morris of whom Plato could have heartily approved.
+
+The *katharsis* of the City parallels that of the individual; the emotions are traditionally connected with the organs of evacuation, precisely because the emotions are waste products. It is difficult to be sure of the exact meaning of Aristotle's better-known definition, in which tragedy "by its imitation of pity and fear effects a *katharsis* from these and like passions",[<sup>25</sup>](#25)<a id="note25"></a> though it is clear that for him too the purification is from the passions (*pathêmata*); we must bear in mind that, for Aristotle, tragedy is still essentially a representation of actions, and not of character. It is certainly not a periodical "outlet" of—that is to say, indulgence in—our "pent-up" emotions that can bring about an emancipation from them; such an outlet, like a drunkard's bout, can be only a temporary satiation.[<sup>26</sup>](#26)<a id="note26"></a> In what Plato calls with approval the "more austere" kind of poetry, we are presumed to be enjoying a feast of reason rather than a "break-fast" of sensations. His *katharsis* is an ecstasy or liberation of the "immortal soul" from the affections of the "mortal", a conception of emancipation that is closely paralleled in the Indian texts in which liberation is realized by a process of "shaking off one's bodies".[<sup>27</sup>](#27)<a id="note27"></a> The reader or spectator of the imitation of a "myth" is to be rapt away from his habitual and passible personality and, just as in all other sacrificial rituals, becomes a god for the duration of the rite and only returns to himself when the rite is relinquished, when the epiphany is at an end and the curtain falls. We must remember that all artistic operations were originally rites, and that the purpose of the rite (as the word *teletê* implies) is to sacrifice the old and to bring into being a new and more perfect man.
 
 
 
 
 
 
+
+
+<!-- página 26 -->
 
 
 
@@ -42,73 +56,73 @@ Now what are all these arts for? Always and only to supply a real or an imagined
 
 ## Notes
 ##### 1
-Quintilian IX.4.117, "Figura? Quae? com orationis, turn etiam sententiae?" Cf. Plato, Replubic 601B. [↑](#note1)
+Quintilian IX.4.117, "Figura? Quae? com orationis, turn etiam sententiae?" Cf. Plato, Replubic 601B.[↑](#note1)
 ##### 2
-"I cannot fairly give the name of 'art' to anything irrational". Cf. *Laws* 890D, "Law and art are children of the intellect" (*nous*). Sensation (*aisthêsis*) and pleasure (*hêdône*) are irrational (alogos, see *Timaeus* 28A, 47D, 69D). In the *Gorgias*, the irrational is that which cannot give an account of itself, that which is unreasonable, has no *raison d'être*. See also Philo, *Legum Allegoriarum* I.48, "For as grass is the fod of irrational beings, so has the sensibly-perceptible (*to aisthêton*) ben assigned to the irrational part of the soul". *Aisthêsis* is just what the biologist now calls "irritability". [↑](#note2)
+"I cannot fairly give the name of 'art' to anything irrational". Cf. *Laws* 890D, "Law and art are children of the intellect" (*nous*). Sensation (*aisthêsis*) and pleasure (*hêdône*) are irrational (alogos, see *Timaeus* 28A, 47D, 69D). In the *Gorgias*, the irrational is that which cannot give an account of itself, that which is unreasonable, has no *raison d'être*. See also Philo, *Legum Allegoriarum* I.48, "For as grass is the fod of irrational beings, so has the sensibly-perceptible (*to aisthêton*) ben assigned to the irrational part of the soul". *Aisthêsis* is just what the biologist now calls "irritability".[↑](#note2)
 ##### 3
-Quoted with approval by Herbert Read, *Art and Society* (New York, 1937), p. 84, from Alfred North Whitehead, *Religion in the Making* (New York, 1926). [↑](#note3)
+Quoted with approval by Herbert Read, *Art and Society* (New York, 1937), p. 84, from Alfred North Whitehead, *Religion in the Making* (New York, 1926).[↑](#note3)
 ##### 4
-*Sum. Theol.* I-II.57.3 (art is an intellectual virtue); I.5.4 ad 1 (beauty pertains to the cognitive, not the appetitive faculty). [↑](#note4)
+*Sum. Theol.* I-II.57.3 (art is an intellectual virtue); I.5.4 ad 1 (beauty pertains to the cognitive, not the appetitive faculty).[↑](#note4)
 ##### 5
-"Pathology ... 2. The study of the passions or emotions" (*The Oxford English Dictionary*, 1933, VII, 554). The "psychology of art" is not a science of art but of the way in which we are affected by works of art. An affection (*pathêma*) is passive; making or doing (*poiêma*, *ergon*) is an activity. [↑](#note5)
+"Pathology ... 2. The study of the passions or emotions" (*The Oxford English Dictionary*, 1933, VII, 554). The "psychology of art" is not a science of art but of the way in which we are affected by works of art. An affection (*pathêma*) is passive; making or doing (*poiêma*, *ergon*) is an activity.[↑](#note5)
 ##### 6
-See Charles Sears Baldwin, *Medieval Rhetoric and Poetic* (New York, 1928), p. 3. "A real art of speaking which does not lay hold upon the truth does not exist and never will" (*Phaedrus* 260E; cf. *Gorgias* 463-465, 513D, 517A, 527C, *Laws* 937E). [↑](#note6)
+See Charles Sears Baldwin, *Medieval Rhetoric and Poetic* (New York, 1928), p. 3. "A real art of speaking which does not lay hold upon the truth does not exist and never will" (*Phaedrus* 260E; cf. *Gorgias* 463-465, 513D, 517A, 527C, *Laws* 937E).[↑](#note6)
 ##### 7
-See E.F. Rothschild, *The Meaning of Unintelligibility in Modern Art* (Chicago, 1934), p.98. "The course of artistic achievements was the change from the visual as a means of comprehending the non-visual to the visual as an end in itself and the abstract structure of physical forms as the purely artitic transcendence of the visual ... *a transcendence utterly alien and unintelligible* to the average [sc. normal] man" (F. de W. Bolman, criticizing E. Kahler's *Man in Measure*, in *Journal of Philosophy*, XLI, 1944, 134-135; italics mine). [↑](#note7)
+See E.F. Rothschild, *The Meaning of Unintelligibility in Modern Art* (Chicago, 1934), p.98. "The course of artistic achievements was the change from the visual as a means of comprehending the non-visual to the visual as an end in itself and the abstract structure of physical forms as the purely artitic transcendence of the visual ... *a transcendence utterly alien and unintelligible* to the average [sc. normal] man" (F. de W. Bolman, criticizing E. Kahler's *Man in Measure*, in *Journal of Philosophy*, XLI, 1944, 134-135; italics mine).[↑](#note7)
 ##### 8
-*Sum. Theol.* I.45.6c, "Artifex autem per verbum in intellectu conceptum et per amorem suae voluntatis ad aliquid relatum, operatur"; I.14.8c, "Artifex operatur per suum intellectum"; I.45.7c "Forma artificiati est ex conceptione artificis". See also St. Bonaventura, *Il Sententiarum* I-I.I.I ad 3 and 4, "Agens per intellectum producit per formas". Informality is ugliness. [↑](#note8)
+*Sum. Theol.* I.45.6c, "Artifex autem per verbum in intellectu conceptum et per amorem suae voluntatis ad aliquid relatum, operatur"; I.14.8c, "Artifex operatur per suum intellectum"; I.45.7c "Forma artificiati est ex conceptione artificis". See also St. Bonaventura, *Il Sententiarum* I-I.I.I ad 3 and 4, "Agens per intellectum producit per formas". Informality is ugliness.[↑](#note8)
 ##### 9
-*Gorgias* 503E. [↑](#note9)
+*Gorgias* 503E.[↑](#note9)
 ##### 10
-*Symposium* 205C. [↑](#note10)
+*Symposium* 205C.[↑](#note10)
 ##### 11
-See, for example, *Statesman* 259E, *Phaedrus* 260E, *Laws* 938A. The word *tribê* literally means "a rubbing", and is an exact equivalent of our modern expression "a grind". (Cf. Hippocrates, *Fractures* 772, "shameful and artless", and Ruskin’s "industry without art is brutality.") "For all well-governed peoples there is a work enjoined upon each man which he must perform" (*Republic* 406C). "Leisure" is the opportunity to do this work without interference (*Republic* 370C). A "work for leisure" is one requiring undivided attention (Euripides, *Andromache* 552). Plato’s view of work in no way differs from that of Hesiod, who says that work is no reproach but the best gift of the gods to men (*Works and Days* 295-296). Whenever Plato disparages the mechanical arts, it is with reference to the kinds of work that provide for the well-being of the body only, and do not at the same time provide spiritual food; he does not connect culture with idleness. [↑](#note11)
+See, for example, *Statesman* 259E, *Phaedrus* 260E, *Laws* 938A. The word *tribê* literally means "a rubbing", and is an exact equivalent of our modern expression "a grind". (Cf. Hippocrates, *Fractures* 772, "shameful and artless", and Ruskin’s "industry without art is brutality.") "For all well-governed peoples there is a work enjoined upon each man which he must perform" (*Republic* 406C). "Leisure" is the opportunity to do this work without interference (*Republic* 370C). A "work for leisure" is one requiring undivided attention (Euripides, *Andromache* 552). Plato’s view of work in no way differs from that of Hesiod, who says that work is no reproach but the best gift of the gods to men (*Works and Days* 295-296). Whenever Plato disparages the mechanical arts, it is with reference to the kinds of work that provide for the well-being of the body only, and do not at the same time provide spiritual food; he does not connect culture with idleness.[↑](#note11)
 ##### 12
-*Republic* 342BC. What is made by art is correctly made (*Alcibiades* 1.108B). It will follow that those who are in possession of and governed by their art and not by their own irrational impulses, which yearn for innovations, will operate in the same way (*Republic* 349-350, *Laws* 660B). "Art has fixed ends and ascertained means of operation" (Sum. Theol. II-II.47.4 ad 2, 49.5 *ad* 2). It is in the same way that an oracle, speaking *ex cathedra*, is infallible, but not so the man when speaking for himself. This is similarly true in the case of a guru. [↑](#note12)
+*Republic* 342BC. What is made by art is correctly made (*Alcibiades* 1.108B). It will follow that those who are in possession of and governed by their art and not by their own irrational impulses, which yearn for innovations, will operate in the same way (*Republic* 349-350, *Laws* 660B). "Art has fixed ends and ascertained means of operation" (Sum. Theol. II-II.47.4 ad 2, 49.5 *ad* 2). It is in the same way that an oracle, speaking *ex cathedra*, is infallible, but not so the man when speaking for himself. This is similarly true in the case of a guru.[↑](#note12)
 ##### 13
-*Republic* 369BC, *Statesman* 279CD, *Epinomis* 975C. [↑](#note13)
+*Republic* 369BC, *Statesman* 279CD, *Epinomis* 975C.[↑](#note13)
 ##### 14
-*Republic* 398A, 401B, 605-607; *Laws* 656C. [↑](#note14)
+*Republic* 398A, 401B, 605-607; *Laws* 656C.[↑](#note14)
 ##### 15
-Deut. 8:3, Luke 4:4. [↑](#note15)
+Deut. 8:3, Luke 4:4.[↑](#note15)
 ##### 16
-*Republic* 376E, 410A-412A, 521E-522A, *Laws* 673A. Plato always has in view an attainment of the "best" for both the body and the soul, "since for any single kind to be left by itself pure and isolated is not good, nor altogether possible" (*Philebus* 63B; cf. *Republic* 409-410). "The one means of salvation from these evils is neither to exercise the soul without the body nor the body without the soul" (*Timaeus* 88B). [↑](#note16)
+*Republic* 376E, 410A-412A, 521E-522A, *Laws* 673A. Plato always has in view an attainment of the "best" for both the body and the soul, "since for any single kind to be left by itself pure and isolated is not good, nor altogether possible" (*Philebus* 63B; cf. *Republic* 409-410). "The one means of salvation from these evils is neither to exercise the soul without the body nor the body without the soul" (*Timaeus* 88B).[↑](#note16)
 ##### 17
-*Sum. Theol.* I-II.57.3 ad 2 (based on Plato’s view of justice, which assigns to every man the work for which he is naturally fitted). None of the arts pursues its own good, but only the patron’s (*Republic* 342B, 347A), which lies in the excellence of the product. [↑](#note17)
+*Sum. Theol.* I-II.57.3 ad 2 (based on Plato’s view of justice, which assigns to every man the work for which he is naturally fitted). None of the arts pursues its own good, but only the patron’s (*Republic* 342B, 347A), which lies in the excellence of the product.[↑](#note17)
 ##### 18
-*Timaeus* 47DE; cf. *Laws* 659E, on the chant. [↑](#note18)
+*Timaeus* 47DE; cf. *Laws* 659E, on the chant.[↑](#note18)
 ##### 19
-*Timaeus* 80B, echoed in Quintilian IX.117, "docti rationem componendi intelligunt, etiam indocti voluptatem." Cf. *Timaeus* 47, 90D. [↑](#note19)
+*Timaeus* 80B, echoed in Quintilian IX.117, "docti rationem componendi intelligunt, etiam indocti voluptatem." Cf. *Timaeus* 47, 90D.[↑](#note19)
 ##### 20
 *Sâhitya Darpana* III.2–3; cf. Coomaraswamy, *The Transformation of Nature in Art*,
 1934, pp. 48-51. [↑](#note20)
 ##### 21
-*Laws* 840C.c. On *katharsis*, see Plato, *Sophist* 226-227, *Phaedrus* 243AB, *Phaedo* 66-67, 82B, *Republic* 399E; Aristotle, *Poetics* VI.2.1449b. [↑](#note21)
+*Laws* 840C.c. On *katharsis*, see Plato, *Sophist* 226-227, *Phaedrus* 243AB, *Phaedo* 66-67, 82B, *Republic* 399E; Aristotle, *Poetics* VI.2.1449b.[↑](#note21)
 ##### 22
-*Phaedo* 67DE. [↑](#note22)
+*Phaedo* 67DE.[↑](#note22)
 ##### 23
-*Phaedrus* 279BC; so also Hermes, *Lib*. XIII.3, 4, "I have passed forth out of myself," and Chuang-tzu, ch. 2, "Today I buried myself." Cf. Coomaraswamy, "On Being in One’s Right Mind," 1942. [↑](#note23)
+*Phaedrus* 279BC; so also Hermes, *Lib*. XIII.3, 4, "I have passed forth out of myself," and Chuang-tzu, ch. 2, "Today I buried myself." Cf. Coomaraswamy, "On Being in One’s Right Mind," 1942.[↑](#note23)
 ##### 24
-*Republic* 389-398. [↑](#note24)
+*Republic* 389-398.[↑](#note24)
 ##### 25
-Aristotle, *Poetics* VI.2.1449b. [↑](#note25)
+Aristotle, *Poetics* VI.2.1449b.[↑](#note25)
 ##### 26
 The aesthetic man is "one who is too weak to stand up against pleasure and pain" (*Republic* 556c). If we think of impassibility (*apatheia*, not what we mean by "apathy" but a being superior to the pulls of pleasure and pain; cf. BG II.56) with horror, it is because we should be "unwilling to live without hunger and thirst and the like, if we could not also *suffer* (*paschô*, Skr. *bâdh*) the natural consequences of these passions", the pleasures of eating and drinking and enjoying fine colors and sounds (*Philebus* 54E, 55B). Our attitude to pleasures and pains is always passive, if not, indeed, masochistic. Cf. Coomaraswamy, *Time and Eternity*, 1947, p. 73 and notes.
 
-It is very clear from *Republic* 606 that the enjoyment of an emotional storm is just what Plato does not mean by a *katharsis*; such an indulgence merely fosters the very feelings that we are trying to suppress. A perfect parallel is found in the *Milinda Pañho* (Mil, p. 76); it is asked, of tears shed for the death of a mother or shed for love of the Truth, which can be called a "cure" (*bhesajjam*)—i.e. for man’s mortality— and it is pointed out that the former are fevered, the latter cool, and that it is what cools that cures. [↑](#note26)
+It is very clear from *Republic* 606 that the enjoyment of an emotional storm is just what Plato does not mean by a *katharsis*; such an indulgence merely fosters the very feelings that we are trying to suppress. A perfect parallel is found in the *Milinda Pañho* (Mil, p. 76); it is asked, of tears shed for the death of a mother or shed for love of the Truth, which can be called a "cure" (*bhesajjam*)—i.e. for man’s mortality— and it is pointed out that the former are fevered, the latter cool, and that it is what cools that cures.[↑](#note26)
 ##### 27
-JUB III.30.2 and 39.2; BU III.7.3-4; CU VIII.13; Svet. Up. V.14. Cf. *Phaedo* 65-69. [↑](#note27)
+JUB III.30.2 and 39.2; BU III.7.3-4; CU VIII.13; Svet. Up. V.14. Cf. *Phaedo* 65-69.[↑](#note27)
 ##### 28
-*Statesman* 288C. [↑](#note28)
+*Statesman* 288C.[↑](#note28)
 ##### 29
 *Philebus* 67B. [↑](#note29)
 ##### 30
-*Republic* 399-404; cf. *Laws* 656E, 660, 797-799. [↑](#note30)
+*Republic* 399-404; cf. *Laws* 656E, 660, 797-799.[↑](#note30)
 ##### 31
-*Laws* 659E; see also note 86, below. [↑](#note31)
+*Laws* 659E; see also note 86, below.[↑](#note31)
 ##### 32
-*Republic* 399E; cf. Dante, *Paradiso* 1.13-21. [↑](#note32)
+*Republic* 399E; cf. Dante, *Paradiso* 1.13-21.[↑](#note32)
 ##### 33
-Aristotle, *Physics* II.2.194a 20, *hê technê mimeitai tên phusin*—both employing suitable means toward a known end. [↑](#note33)
+Aristotle, *Physics* II.2.194a 20, *hê technê mimeitai tên phusin*—both employing suitable means toward a known end.[↑](#note33)
 ##### 34
-Art is iconography, the making of images or copies of some model (*paradeigma*), whether visible (presented) or invisible (contemplated); see Plato, *Republic* 373B, 377E, 392-397, 402, *Laws* 667-669, *Statesman* 306D, *Cratylus* 439A, *Timaeus* 28AB, 52BC, *Sophist* 234C, 236C; Aristotle, *Poetics* I.1-2. In the same way, Indian works of art are called counterfeits or commensurations (*anukrti*, *tadâkâratâ*, *pratikrti*, *pratibimba*, *pratimâna*), and likeness (*sârûpya*, *sâdrsya*) is demanded. This does not mean that it is a likeness in all respects that is needed to evoke the original, but an equality as to the whichness (*tosouton*, *hoson*) and whatness (*toiouton*, *hoion*)—or form (*idea*) and force (*dunamis*)—of the archetype. It is this "real equality" or "adequacy" (*auto to ison*) that is the truth and the beauty of the work (*Laws* 667-668, *Timaeus* 28AB, *Phaedo* 74-75). We have shown elsewhere that the Indian *sâdrsya* does not imply an illusion but only a real equivalence. It is clear from *Timaeus* 28-29 that by "equality" and "likeness" Plato also means a real kinship (*sungeneia*) and analogy (*analogia*), and that it is these qualities that make it possible for an image to "interpret" or "deduce" (*exêgeomai*, cf. Skr. *ânî*) its archetype. For example, words are *eidôla* of things (*Sophist* 234C), "true names" are not correct by accident (*Cratylus* 387D, 439A), the body is an *eidôlon* of the soul (*Laws* 959B), and these images are at the same time like and yet unlike their referents. In other words, what Plato means by "imitation" and by "art" is an "adequate symbolism"; cf. distinction of image from duplicate, *Cratylus* 432. [↑](#note34)
+Art is iconography, the making of images or copies of some model (*paradeigma*), whether visible (presented) or invisible (contemplated); see Plato, *Republic* 373B, 377E, 392-397, 402, *Laws* 667-669, *Statesman* 306D, *Cratylus* 439A, *Timaeus* 28AB, 52BC, *Sophist* 234C, 236C; Aristotle, *Poetics* I.1-2. In the same way, Indian works of art are called counterfeits or commensurations (*anukrti*, *tadâkâratâ*, *pratikrti*, *pratibimba*, *pratimâna*), and likeness (*sârûpya*, *sâdrsya*) is demanded. This does not mean that it is a likeness in all respects that is needed to evoke the original, but an equality as to the whichness (*tosouton*, *hoson*) and whatness (*toiouton*, *hoion*)—or form (*idea*) and force (*dunamis*)—of the archetype. It is this "real equality" or "adequacy" (*auto to ison*) that is the truth and the beauty of the work (*Laws* 667-668, *Timaeus* 28AB, *Phaedo* 74-75). We have shown elsewhere that the Indian *sâdrsya* does not imply an illusion but only a real equivalence. It is clear from *Timaeus* 28-29 that by "equality" and "likeness" Plato also means a real kinship (*sungeneia*) and analogy (*analogia*), and that it is these qualities that make it possible for an image to "interpret" or "deduce" (*exêgeomai*, cf. Skr. *ânî*) its archetype. For example, words are *eidôla* of things (*Sophist* 234C), "true names" are not correct by accident (*Cratylus* 387D, 439A), the body is an *eidôlon* of the soul (*Laws* 959B), and these images are at the same time like and yet unlike their referents. In other words, what Plato means by "imitation" and by "art" is an "adequate symbolism"; cf. distinction of image from duplicate, *Cratylus* 432.[↑](#note34)
