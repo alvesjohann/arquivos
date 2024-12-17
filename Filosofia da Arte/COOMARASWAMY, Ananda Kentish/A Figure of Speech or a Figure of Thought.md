@@ -1,5 +1,5 @@
 # A Figure os Speech or a Figure of Though?<a id="note1"></a>[<sup>1</sup>](#1)<br>by *Ananda K. Coomaraswamy*
-#### This essay was written for *Figures of Speech or Figures of Thought: Collected Essays on the Traditional or "Normal" View of Art* (London, 1946.—ED.)
+#### [This essay was written for *Figures of Speech or Figures of Thought: Collected Essays on the Traditional or "Normal" View of Art* (London, 1946.—ED.)]
 
 >*"Egô de technên ou kalô, ho an ê alogon pragma."*<br>— Plato, *Gorgias* 465A<a id="note2"></a>[<sup>2</sup>](#2)
 
@@ -66,10 +66,49 @@ See, for example, *Statesman* 259E, *Phaedrus* 260E, *Laws* 938A. The word *trib
 ##### 12
 *Republic* 342BC. What is made by art is correctly made (*Alcibiades* 1.108B). It will follow that those who are in possession of and governed by their art and not by their own irrational impulses, which yearn for innovations, will operate in the same way (*Republic* 349-350, *Laws* 660B). "Art has fixed ends and ascertained means of operation" (Sum. Theol. II-II.47.4 ad 2, 49.5 *ad* 2). It is in the same way that an oracle, speaking *ex cathedra*, is infallible, but not so the man when speaking for himself. This is similarly true in the case of a guru. [↑](#note12)
 ##### 13
- [↑](#note13)
+*Republic* 369BC, *Statesman* 279CD, *Epinomis* 975C. [↑](#note13)
 ##### 14
- [↑](#note14)
+*Republic* 398A, 401B, 605-607; *Laws* 656C. [↑](#note14)
 ##### 15
- [↑](#note15)
+Deut. 8:3, Luke 4:4. [↑](#note15)
 ##### 16
- [↑](#note16)
+*Republic* 376E, 410A-412A, 521E-522A, *Laws* 673A. Plato always has in view an attainment of the "best" for both the body and the soul, "since for any single kind to be left by itself pure and isolated is not good, nor altogether possible" (*Philebus* 63B; cf. *Republic* 409-410). "The one means of salvation from these evils is neither to exercise the soul without the body nor the body without the soul" (*Timaeus* 88B). [↑](#note16)
+##### 17
+*Sum. Theol.* I-II.57.3 ad 2 (based on Plato’s view of justice, which assigns to every man the work for which he is naturally fitted). None of the arts pursues its own good, but only the patron’s (*Republic* 342B, 347A), which lies in the excellence of the product. [↑](#note17)
+##### 18
+*Timaeus* 47DE; cf. *Laws* 659E, on the chant. [↑](#note18)
+##### 19
+*Timaeus* 80B, echoed in Quintilian IX.117, "docti rationem componendi intelligunt, etiam indocti voluptatem." Cf. *Timaeus* 47, 90D. [↑](#note19)
+##### 20
+*Sâhitya Darpana* III.2–3; cf. Coomaraswamy, *The Transformation of Nature in Art*,
+1934, pp. 48-51. [↑](#note20)
+##### 21
+*Laws* 840C.c. On *katharsis*, see Plato, *Sophist* 226-227, *Phaedrus* 243AB, *Phaedo* 66-67, 82B, *Republic* 399E; Aristotle, *Poetics* VI.2.1449b. [↑](#note21)
+##### 22
+*Phaedo* 67DE. [↑](#note22)
+##### 23
+*Phaedrus* 279BC; so also Hermes, *Lib*. XIII.3, 4, "I have passed forth out of myself," and Chuang-tzu, ch. 2, "Today I buried myself." Cf. Coomaraswamy, "On Being in One’s Right Mind," 1942. [↑](#note23)
+##### 24
+*Republic* 389-398. [↑](#note24)
+##### 25
+Aristotle, *Poetics* VI.2.1449b. [↑](#note25)
+##### 26
+The aesthetic man is "one who is too weak to stand up against pleasure and pain" (*Republic* 556c). If we think of impassibility (*apatheia*, not what we mean by "apathy" but a being superior to the pulls of pleasure and pain; cf. BG II.56) with horror, it is because we should be "unwilling to live without hunger and thirst and the like, if we could not also *suffer* (*paschô*, Skr. *bâdh*) the natural consequences of these passions", the pleasures of eating and drinking and enjoying fine colors and sounds (*Philebus* 54E, 55B). Our attitude to pleasures and pains is always passive, if not, indeed, masochistic. Cf. Coomaraswamy, *Time and Eternity*, 1947, p. 73 and notes.
+
+It is very clear from *Republic* 606 that the enjoyment of an emotional storm is just what Plato does not mean by a *katharsis*; such an indulgence merely fosters the very feelings that we are trying to suppress. A perfect parallel is found in the *Milinda Pañho* (Mil, p. 76); it is asked, of tears shed for the death of a mother or shed for love of the Truth, which can be called a "cure" (*bhesajjam*)—i.e. for man’s mortality— and it is pointed out that the former are fevered, the latter cool, and that it is what cools that cures. [↑](#note26)
+##### 27
+JUB III.30.2 and 39.2; BU III.7.3-4; CU VIII.13; Svet. Up. V.14. Cf. *Phaedo* 65-69. [↑](#note27)
+##### 28
+*Statesman* 288C. [↑](#note28)
+##### 29
+*Philebus* 67B. [↑](#note29)
+##### 30
+*Republic* 399-404; cf. *Laws* 656E, 660, 797-799. [↑](#note30)
+##### 31
+*Laws* 659E; see also note 86, below. [↑](#note31)
+##### 32
+*Republic* 399E; cf. Dante, *Paradiso* 1.13-21. [↑](#note32)
+##### 33
+Aristotle, *Physics* II.2.194a 20, *hê technê mimeitai tên phusin*—both employing suitable means toward a known end. [↑](#note33)
+##### 34
+Art is iconography, the making of images or copies of some model (*paradeigma*), whether visible (presented) or invisible (contemplated); see Plato, *Republic* 373B, 377E, 392-397, 402, *Laws* 667-669, *Statesman* 306D, *Cratylus* 439A, *Timaeus* 28AB, 52BC, *Sophist* 234C, 236C; Aristotle, *Poetics* I.1-2. In the same way, Indian works of art are called counterfeits or commensurations (*anukrti*, *tadâkâratâ*, *pratikrti*, *pratibimba*, *pratimâna*), and likeness (*sârûpya*, *sâdrsya*) is demanded. This does not mean that it is a likeness in all respects that is needed to evoke the original, but an equality as to the whichness (*tosouton*, *hoson*) and whatness (*toiouton*, *hoion*)—or form (*idea*) and force (*dunamis*)—of the archetype. It is this "real equality" or "adequacy" (*auto to ison*) that is the truth and the beauty of the work (*Laws* 667-668, *Timaeus* 28AB, *Phaedo* 74-75). We have shown elsewhere that the Indian *sâdrsya* does not imply an illusion but only a real equivalence. It is clear from *Timaeus* 28-29 that by "equality" and "likeness" Plato also means a real kinship (*sungeneia*) and analogy (*analogia*), and that it is these qualities that make it possible for an image to "interpret" or "deduce" (*exêgeomai*, cf. Skr. *ânî*) its archetype. For example, words are *eidôla* of things (*Sophist* 234C), "true names" are not correct by accident (*Cratylus* 387D, 439A), the body is an *eidôlon* of the soul (*Laws* 959B), and these images are at the same time like and yet unlike their referents. In other words, what Plato means by "imitation" and by "art" is an "adequate symbolism"; cf. distinction of image from duplicate, *Cratylus* 432. [↑](#note34)
