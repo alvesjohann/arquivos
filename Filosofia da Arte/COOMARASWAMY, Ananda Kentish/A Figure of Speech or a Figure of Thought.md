@@ -49,16 +49,8 @@ And now as to the judgment of the work of art, first by the criterion of art, an
 
 So when taste has been rejected as a criterion in art, Plato's Stranger sums up thus, "The judge of anything that has been made (*poiêma*) must know its essence—what its intention (*boulêsis*) is and what the real thing of which it is an image—or else will hardly be able to diagnose whether it hits or misses the mark of its intention". And again, "The expert critic of any image, whether in painting, music, or any other art, must know three things, what was the archetype, and in each case whether it was correctly and whether well made ... whether the representation was good (*kalon*) or not".[<sup>55</sup>](#55)<a id="note55"></a> The complete judgment, made by the whole man, is as to whether the thing under consideration has been both truly *and* well made. It is only "by the mob that the beautiful and the just are rent apart",[<sup>56</sup>](#56)<a id="note56"></a> by the mob, shall we say, of "aesthetes", the men who "know what they like"?
 
+Of the two judgments, respectively by art and by value, the first only establishes the existence of the object as a true work of art and not a falsification (*pseudos*) of its archetype: it is a judgment normally made by the artist before he can allow the work to leave his shop, and so a judgment that is really presupposed when we as patrons or consumers propose to evaluate the work. It is only under certain conditions, and typically those of modern manufacture and salesmanship, that it becomes necessary for the patron or consumer to ask whether the object he has commissioned or proposes to buy is really a true work of art. Under normal conditions, where making is a vocation and the artist is disposed *and free* to consider nothing but the good of the work to be done, it is superfluous to ask, Is this a "true" work of art? When, however, the question must be asked, or if we wish to ask it in order to understand completely the genesis of the work, then the grounds of our judgment in this respect will be the same as for the original artist; we must know of what the work is intended to remind us, and whether it is equal to (is an "adequate symbol" of) this content, or by want of truth betrays its paradigm. In any case, when this judgment has been made, or is taken for granted, we can proceed to ask whether or not the work has a value for us, to ask whether it will serve our needs. If we are whole men, not such as live by bread alone, the question will be asked with respect to spiritual and physical needs to be satisfied together; we shall ask whether the model has been well chosen, and whether it has been applied to the material in such a way as to serve our immediate need; in other words, What does it say? and Will it work? If we have asked for a bread that will support the whole man, and receive how ever fine a stone, we are not morally, though we may be legally, bound to "pay the piper". All our efforts to obey the Devil and "command this stone that it be made bread" are doomed to failure.
 
-
-
-
-
-
-
-
-
-<!-- página 30 -->
 
 
 
@@ -70,8 +62,9 @@ So when taste has been rejected as a criterion in art, Plato's Stranger sums up 
 
 
 
-[EM CONSTRUÇÃO - FALTAM CERCA DE 11 PÁGINAS]
+<!-- página 31 -->
 
+[EM CONSTRUÇÃO - FALTAM CERCA DE 10 PÁGINAS]
 
 
 ## Notes
