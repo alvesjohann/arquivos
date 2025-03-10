@@ -51,18 +51,15 @@ So when taste has been rejected as a criterion in art, Plato's Stranger sums up 
 
 Of the two judgments, respectively by art and by value, the first only establishes the existence of the object as a true work of art and not a falsification (*pseudos*) of its archetype: it is a judgment normally made by the artist before he can allow the work to leave his shop, and so a judgment that is really presupposed when we as patrons or consumers propose to evaluate the work. It is only under certain conditions, and typically those of modern manufacture and salesmanship, that it becomes necessary for the patron or consumer to ask whether the object he has commissioned or proposes to buy is really a true work of art. Under normal conditions, where making is a vocation and the artist is disposed *and free* to consider nothing but the good of the work to be done, it is superfluous to ask, Is this a "true" work of art? When, however, the question must be asked, or if we wish to ask it in order to understand completely the genesis of the work, then the grounds of our judgment in this respect will be the same as for the original artist; we must know of what the work is intended to remind us, and whether it is equal to (is an "adequate symbol" of) this content, or by want of truth betrays its paradigm. In any case, when this judgment has been made, or is taken for granted, we can proceed to ask whether or not the work has a value for us, to ask whether it will serve our needs. If we are whole men, not such as live by bread alone, the question will be asked with respect to spiritual and physical needs to be satisfied together; we shall ask whether the model has been well chosen, and whether it has been applied to the material in such a way as to serve our immediate need; in other words, What does it say? and Will it work? If we have asked for a bread that will support the whole man, and receive how ever fine a stone, we are not morally, though we may be legally, bound to "pay the piper". All our efforts to obey the Devil and "command this stone that it be made bread" are doomed to failure.
 
+ It is one of Plato's virtues, and that of all traditional doctrine about art, that "value" is never taken to mean an exclusively spiritual or exclusively physical value. It is neither advantageous, nor altogether possible, to separate these values, making some things sacred and others profane: the highest wisdom must be "mixed"[<sup>57</sup>](#57)<a id="note57"></a> with practical knowledge, the contemplative life combined with the active. The pleasures that pertain to these lives are altogether legitimate, and it is only those pleasures that are irrational, bestial, and in the worst sense of the words seductive and distracting that are to be excluded. Plato's music and gymnastics, which correspond to our culture and physical training, are not alternative curricula, but essential parts of one and the same education.[<sup>58</sup>](#58)<a id="note58"></a> Philosophy is the highest form of music (culture), but the philosopher who has escaped from the cave must return to it to participate in the everyday life of the world and, quite literally, play the game.[<sup>59</sup>](#59)<a id="note59"></a> Plato's criterion of "wholesomeness" implies that nothing ought to be made, nothing can be really worth having, that is not at the same time correct or true or formal or beautiful (whichever word you prefer) and adapted to good use.
+
+For, to state the Platonic doctrine in more familiar words, "It is written that man shall not live by bread alone, but by every word of God, ... that bread which came down from heaven",[<sup>60</sup>](#60)<a id="note60"></a> that is, not by mere utilities but also by those "divine realities" and "causal beauty" with which the wholesome works of art are informed, so that they also live and speak. It is just to the extent that we try to live by bread alone and by all the other in-significant utilities that "bread alone" includes — good as utilities, but bad as mere utilities — that our contemporary civilization can be rightly called inhuman and must be unfavorably compared with the "primitive" cultures in which, as the anthropologists assure us, "the needs of the body and soul are satisfied together".[<sup>61</sup>](#61)<a id="note61"></a> Manufacture for the needs of the body alone is the curse of modern civilization.
 
 
 
 
 
-
-
-
-
-
-
-<!-- página 31 -->
+<!-- página 32 -->
 
 [EM CONSTRUÇÃO - FALTAM CERCA DE 10 PÁGINAS]
 
