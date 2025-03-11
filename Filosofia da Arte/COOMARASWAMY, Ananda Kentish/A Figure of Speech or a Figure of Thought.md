@@ -55,11 +55,20 @@ Of the two judgments, respectively by art and by value, the first only establish
 
 For, to state the Platonic doctrine in more familiar words, "It is written that man shall not live by bread alone, but by every word of God, ... that bread which came down from heaven",[<sup>60</sup>](#60)<a id="note60"></a> that is, not by mere utilities but also by those "divine realities" and "causal beauty" with which the wholesome works of art are informed, so that they also live and speak. It is just to the extent that we try to live by bread alone and by all the other in-significant utilities that "bread alone" includes — good as utilities, but bad as mere utilities — that our contemporary civilization can be rightly called inhuman and must be unfavorably compared with the "primitive" cultures in which, as the anthropologists assure us, "the needs of the body and soul are satisfied together".[<sup>61</sup>](#61)<a id="note61"></a> Manufacture for the needs of the body alone is the curse of modern civilization.
 
+Should we propose to raise our standard of living to the savage level, on which there is no distinction of fine from applied or sacred from profane art, it need not imply the sacrifice of any of the necessities or even conveniences of life, but only of luxuries, only of such utilities as are not at the same time useful and significant. If such a proposal to return to primitive levels of culture should seem to be utopian and impracticable, it is only because a manufacture of significant utilities would have to be a manufacture for use, the use of the whole man, and not for the salesman's profit. The price to be paid for putting back into the market place, where they belong, such things as are now to be seen only in museums would be that of economic revolution. It may be doubted whether our boasted love of art extends so far.
+
+It has sometimes been asked whether the "artist" can survive under modern conditions. In the sense in which the word is used by those who ask the question, one does not see how he can or why he should survive. For, just as the modern artist is neither a useful or significant, but only an ornamental member of society, so the modern workman is nothing but a useful member and is neither significant nor ornamental. It is certain that we shall have to go on working, but not so certain that we could not live, and handsomely, without the exhibitionists of our studios, galleries, and playing fields. We cannot do without art, because art is the knowledge of how things ought to be made, art is the principle of manufacture (*recta ratio factibilium*), and while an artless play may be innocent, an artless manufacture is merely brutish labor and a sin against the wholesomeness of human nature; we *can* do without "fine" artists, whose art does not "apply" to anything, and whose organized manufacture of art in studios is the inverse of the laborer’s artless manufacture in factories; and we ought to be able to do without the base mechanics "whose souls are bowed and mutilated by their vulgar occupations even as their bodies are marred by their mechanical arts."[<sup>62</sup>](#62)<a id="note62"></a>
+
+Plato himself discusses, in connection with all the arts, whether  of potter, painter, poet, or "craftsman of civic liberty", the relation between the practice of an art and the earning of a livelihood.[<sup>63</sup>](#63)<a id="note63"></a> He points out that the practice of an art and the wage-earning capacity are two different things; that the artist (in Plato's sense and that of the Christian and Oriental social philosophies) does not earn wages by his art. He *works by* his art, and is only accidentally a trader if he sells what he makes. Being a vocation, his art is most intimately his own and pertains to his own nature, and the pleasure that he takes in it perfects the operation. There is nothing he would rather work (or "play") at than his making; to him the leisure state would be an abomination of boredom. This situation, in which each man does what is naturally (*kata phusin* = Skr. *svabhâvatas*) his to do (*to heautou prattein* = Skr. *svadharma, svakarma*), not only is the type of Justice[<sup>64</sup>](#64)<a id="note64"></a>, but furthermore, under these conditions (i.e., when the maker loves to work), "more is done, and better done, and with more ease, than in any other way".[<sup>65</sup>](#65)<a id="note65"></a> Artists are not trades men. "They know how to make, but not how to hoard".[<sup>66</sup>](#66)<a id="note66"></a> Under these conditions the worker and maker is not a hireling, but one whose salary enables him to go on doing and making. He is just like any other member of a feudal society, in which none are "hired" men, but all enfeoffed and all possessed of a hereditary standing, that of a professional whose reward is by gift or endowment and not "at so much an hour".
 
 
 
 
-<!-- página 32 -->
+
+
+
+
+<!-- página 33 -->
 
 [EM CONSTRUÇÃO - FALTAM CERCA DE 10 PÁGINAS]
 
@@ -177,3 +186,33 @@ The contemplative *actus primus* (*theôria*, Skr. *dhî*, *dhyâna*) and operat
 ##### 54
 *Laws* 667; for a need as first and last cause, see *Republic* 369BC. As to "whole someness", cf. Richard Bernheimer, in *Art: A Bryn Mawr Symposium* (Bryn Mawr, 1940), pp. 28-29: "There should be a deep ethical purpose in all of art, of which the classical aesthetic was fully aware ... To have forgotten this purpose before the mirage of absolute patterns and designs is perhaps the fundamental fallacy of the abstract movement in art." The modern abstractionist forgets that the Neolithic formalist was not an interior decorator but a metaphysical man who had to live by his wits.<br>
 The indivisibility of beauty and use is affirmed in Xenophon, *Memorabilia* III.8.8, "that the same house is both beautiful and useful was a lesson in the art of building houses as they ought to be" (cf. IV.6.9). "Omnis enim artifex intendit producere opus pulcrum et utile et stabile ... Scientia reddit opus pulcrum, voluntas reddit utile, perseverantia reddit stabile." (St. Bonaventura, *De reductione artium ad theologiam* 13; tr. de Vinck: "Every maker intends to produce a beautiful, useful, and enduring object ... Knowledge makes a work beautiful, the will makes it useful, and perseverance makes it enduring.") So for St. Augustine, the stylus is "et in suo genere pulcher, et ad usum nostrum accommodatus" (*De vera religione* 39). Philo defines art as "a system of concepts co-ordinated towards some useful end" (*Congr.* 141). Only those whose notion of utility is solely with reference to bodily needs, or on the other hand, the pseudomystics who despise the body rather than use it, vaunt the "uselessness" of art: so Gautier, "ll n'y a de vraiment beau que ce qui ne peut servir à rien; tout ce qui est utile est laid" (quoted by Dorothy Richardson, "Saintsbury and Art for Art’s Sake in England", PMLA, XLIX, 1944, 245), and Paul Valéry (see Coomaraswamy, *Why Exhibit Works of Art?* 1943, p. 95). Gautier's cynical "tout ce qui est utile est laid" adequately illustrates Ruskin's "industry without art is brutality"; a more scathing judgment of the modern world in which utilities are really ugly could hardly be imagined. As H. J. Massingham said, "The combination  of use and beauty is part of what used to be called 'the natural law' and is indispensable for self-preservation", and it is because of the neglect of this principle that civilization "is perishing" (*This Plot of Earth*, London, 1944, p. 176). The modern world is dying of its own squalor just because *its* concept of practical utility is limited to that which "can be used directly for the destruction of human life or for accentuating the present inequalities in the distribution of wealth" (Hardy, *A Mathematician’s Apology*, p. 120, note), and it is only under these unprecedented conditions that it could have been propounded by the escapists that the useful and the beautiful are opposites.[↑](#note54)
+##### 55
+[↑](#note55)
+##### 56
+[↑](#note56)
+##### 57
+[↑](#note57)
+##### 58
+[↑](#note58)
+##### 59
+[↑](#note59)
+##### 60
+[↑](#note60)
+##### 61
+[↑](#note61)
+##### 62
+[↑](#note62)
+##### 63
+[↑](#note63)
+##### 64
+[↑](#note64)
+##### 65
+[↑](#note65)
+##### 66
+[↑](#note66)
+##### 67
+[↑](#note67)
+##### 68
+[↑](#note68)
+##### 69
+[↑](#note69)
