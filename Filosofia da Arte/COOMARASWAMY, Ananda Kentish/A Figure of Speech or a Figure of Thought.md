@@ -61,6 +61,9 @@ It has sometimes been asked whether the "artist" can survive under modern condit
 
 Plato himself discusses, in connection with all the arts, whether  of potter, painter, poet, or "craftsman of civic liberty", the relation between the practice of an art and the earning of a livelihood.[<sup>63</sup>](#63)<a id="note63"></a> He points out that the practice of an art and the wage-earning capacity are two different things; that the artist (in Plato's sense and that of the Christian and Oriental social philosophies) does not earn wages by his art. He *works by* his art, and is only accidentally a trader if he sells what he makes. Being a vocation, his art is most intimately his own and pertains to his own nature, and the pleasure that he takes in it perfects the operation. There is nothing he would rather work (or "play") at than his making; to him the leisure state would be an abomination of boredom. This situation, in which each man does what is naturally (*kata phusin* = Skr. *svabhâvatas*) his to do (*to heautou prattein* = Skr. *svadharma, svakarma*), not only is the type of Justice[<sup>64</sup>](#64)<a id="note64"></a>, but furthermore, under these conditions (i.e., when the maker loves to work), "more is done, and better done, and with more ease, than in any other way".[<sup>65</sup>](#65)<a id="note65"></a> Artists are not trades men. "They know how to make, but not how to hoard".[<sup>66</sup>](#66)<a id="note66"></a> Under these conditions the worker and maker is not a hireling, but one whose salary enables him to go on doing and making. He is just like any other member of a feudal society, in which none are "hired" men, but all enfeoffed and all possessed of a hereditary standing, that of a professional whose reward is by gift or endowment and not "at so much an hour".
 
+The separation of the creative from the profit motive not only leaves the artist free to put the good of the work above his own good, but at the same time abstracts from manufacture the stain of simony, or "traffic in things sacred"; and this conclusion, which rings strangely in our ears, for whom work and play are alike secular activities, is actually in complete agreement with the traditional order, in which the artist's operation is not a meaningless labor, but quite literally a significant and sacred rite, and quite as much as the product itself an adequate symbol of a spiritual reality. It is therefore a way, or rather *the* way, by which the artist, whether potter or painter, poet or king, can best erect or edify (*exorthoô*) himself at the same time that he "trues" or cor-rects (*orthoô*) his work.[<sup>67</sup>](#67)<a id="note67"></a> It is, indeed, only by the "true" workman that "true" work can be done; like engenders like.
+
+When Plato lays it down that the arts shall "care for the bodies and souls of your citizens", and that only things that are sane and free and not any shameful things unbecoming free men (*aneleuthera*)[<sup>68</sup>](#68)<a id="note68"></a> are to be represented, it is as much as to say that the true artist in whatever material must be a free man, meaning by this not an "emancipated artist" in the vulgar sense of one having no obligation or commitment of any kind, but a man emancipated from the despotism of the salesman. Whoever is to "imitate the actions of gods and heroes, the intellections and revolutions of the All", the very selves and divine paradigms or ideas of our useful inventions, must have known these realities "themselves (*auta*) and as they really are (*hoia estin*)": for "what we have not and know not we can neither give to another nor teach our neighbor".[<sup>69</sup>](#69)<a id="note69"></a>
 
 
 
@@ -68,7 +71,9 @@ Plato himself discusses, in connection with all the arts, whether  of potter, pa
 
 
 
-<!-- página 33 -->
+
+
+<!-- página 34 -->
 
 [EM CONSTRUÇÃO - FALTAM CERCA DE 10 PÁGINAS]
 
@@ -187,32 +192,32 @@ The contemplative *actus primus* (*theôria*, Skr. *dhî*, *dhyâna*) and operat
 *Laws* 667; for a need as first and last cause, see *Republic* 369BC. As to "whole someness", cf. Richard Bernheimer, in *Art: A Bryn Mawr Symposium* (Bryn Mawr, 1940), pp. 28-29: "There should be a deep ethical purpose in all of art, of which the classical aesthetic was fully aware ... To have forgotten this purpose before the mirage of absolute patterns and designs is perhaps the fundamental fallacy of the abstract movement in art." The modern abstractionist forgets that the Neolithic formalist was not an interior decorator but a metaphysical man who had to live by his wits.<br>
 The indivisibility of beauty and use is affirmed in Xenophon, *Memorabilia* III.8.8, "that the same house is both beautiful and useful was a lesson in the art of building houses as they ought to be" (cf. IV.6.9). "Omnis enim artifex intendit producere opus pulcrum et utile et stabile ... Scientia reddit opus pulcrum, voluntas reddit utile, perseverantia reddit stabile." (St. Bonaventura, *De reductione artium ad theologiam* 13; tr. de Vinck: "Every maker intends to produce a beautiful, useful, and enduring object ... Knowledge makes a work beautiful, the will makes it useful, and perseverance makes it enduring.") So for St. Augustine, the stylus is "et in suo genere pulcher, et ad usum nostrum accommodatus" (*De vera religione* 39). Philo defines art as "a system of concepts co-ordinated towards some useful end" (*Congr.* 141). Only those whose notion of utility is solely with reference to bodily needs, or on the other hand, the pseudomystics who despise the body rather than use it, vaunt the "uselessness" of art: so Gautier, "ll n'y a de vraiment beau que ce qui ne peut servir à rien; tout ce qui est utile est laid" (quoted by Dorothy Richardson, "Saintsbury and Art for Art’s Sake in England", PMLA, XLIX, 1944, 245), and Paul Valéry (see Coomaraswamy, *Why Exhibit Works of Art?* 1943, p. 95). Gautier's cynical "tout ce qui est utile est laid" adequately illustrates Ruskin's "industry without art is brutality"; a more scathing judgment of the modern world in which utilities are really ugly could hardly be imagined. As H. J. Massingham said, "The combination  of use and beauty is part of what used to be called 'the natural law' and is indispensable for self-preservation", and it is because of the neglect of this principle that civilization "is perishing" (*This Plot of Earth*, London, 1944, p. 176). The modern world is dying of its own squalor just because *its* concept of practical utility is limited to that which "can be used directly for the destruction of human life or for accentuating the present inequalities in the distribution of wealth" (Hardy, *A Mathematician’s Apology*, p. 120, note), and it is only under these unprecedented conditions that it could have been propounded by the escapists that the useful and the beautiful are opposites.[↑](#note54)
 ##### 55
-[↑](#note55)
+*Laws* 668C, 669AB, 670E.[↑](#note55)
 ##### 56
-[↑](#note56)
+*Laws* 860C.[↑](#note56)
 ##### 57
-[↑](#note57)
+*Philebus* 61B-D.[↑](#note57)
 ##### 58
-[↑](#note58)
+*Republic* 376E, 410-412, 521E-522A.[↑](#note58)
 ##### 59
-[↑](#note59)
+*Republic* 519-520, 539E, *Laws* 644, and 803 in conjunction with 807. Cf. BG III.I-25; also Coomaraswamy, "Lîlâ", 1941, and "Play and Seriousness", 1942.[↑](#note59)
 ##### 60
-[↑](#note60)
+Deut. 8:3, Luke 4:4, John 6:58.[↑](#note60)
 ##### 61
-[↑](#note61)
+R. R. Schmidt, *Dawn of the Human Mind* (*Der Geist der Forzeit*), tr. R.A.S. Macalister (London, 1936), p. 167.[↑](#note61)
 ##### 62
-[↑](#note62)
+*Republic* 495E; cf. 522B, 611D, *Theaetetus* 173AB. That "industry without art is brutality" is hardly flattering to those whose admiration of the industrial system is equal to their interest in it. Aristotle defines as "slaves" those who have nothing but their bodies to offer (*Politics* I.5.1254b 18). It is on the work of such "slaves", or literally "prostitutes", that the industrial system of production for profit ultimately rests. Their political freedom does not make of assembly-line workers and other "base mechanics" what Plato means by "free men."[↑](#note62)
 ##### 63
-[↑](#note63)
+*Republic* 395B, 500D. Cf. Philo, *De opificio mundi* 78.[↑](#note63)
 ##### 64
-[↑](#note64)
+*Republic* 433B, 443C.[↑](#note64)
 ##### 65
-[↑](#note65)
+*Republic* 370C; cf. 347E, 374BC, 406C. Paul Shorey had the naïveté to see in Plato's conception of a vocational society an anticipation of Adam Smith's division of labor; see *The Republic*, tr. and ed. P. Shorey (LCL, 1935), I, 150-151, note b. Actually, no two conceptions could be more contrary. In Plato's division of labor it is taken for granted not that the artist is a special kind of man but that every man is a special kind of artist; his specialization is for the good of all concerned, producer and consumer alike. Adam Smith's division benefits no one but the manufacturer and salesman. Plato, who detested any "fractioning of human faculty" (*Republic* 395B), could hardly have seen in our division of labor a type of justice. Modern research has rediscovered that "workers are *not* governed primarily by economic motives" (see Stuart Chase, "*What* Makes the Worker Like to Work?" *Reader's Digest*, February 1941, p. 19).[↑](#note65)
 ##### 66
-[↑](#note66)
+Chuang-tzu, as quoted by Arthur Waley, *Three Ways of Thought in Ancient China* (London, 1939), p. 62. It is not true to say that "the artist is a mercenary living by the sale of his own works" (F. J. Mather, *Concerning Beauty*, Princeton, 1935, p. 240). He is not working in order to make money but accepts money (or its equivalent) in order to be able to go on working at his living — and I say "working at his *living*" because the man *is* what he does.[↑](#note66)
 ##### 67
-[↑](#note67)
+"A man attains perfection by devotion to his own work ... by his own work praising Him who wove this all ... Whoever does the work appointed by his own nature incurs no sin" (BG XVIII.45-46).[↑](#note67)
 ##### 68
-[↑](#note68)
+*Republic* 395C. See Aristotle on "leisure", *Nicomachean Ethics* X.7.5-7.1177b.[↑](#note68)
 ##### 69
-[↑](#note69)
+*Republic* 377E, Symposium 196E.[↑](#note69)
