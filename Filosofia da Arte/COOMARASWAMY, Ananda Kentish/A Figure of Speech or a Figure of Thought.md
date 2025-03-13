@@ -65,17 +65,16 @@ The separation of the creative from the profit motive not only leaves the artist
 
 When Plato lays it down that the arts shall "care for the bodies and souls of your citizens", and that only things that are sane and free and not any shameful things unbecoming free men (*aneleuthera*)[<sup>68</sup>](#68)<a id="note68"></a> are to be represented, it is as much as to say that the true artist in whatever material must be a free man, meaning by this not an "emancipated artist" in the vulgar sense of one having no obligation or commitment of any kind, but a man emancipated from the despotism of the salesman. Whoever is to "imitate the actions of gods and heroes, the intellections and revolutions of the All", the very selves and divine paradigms or ideas of our useful inventions, must have known these realities "themselves (*auta*) and as they really are (*hoia estin*)": for "what we have not and know not we can neither give to another nor teach our neighbor".[<sup>69</sup>](#69)<a id="note69"></a>
 
+In other words, an act of "imagination", in which the idea to be represented is first clothed in the imitable form or image of the thing to be made, must precede the operation in which this form is impressed upon the actual material. The first of these acts, in the terms of Scholastic philosophy, is free, the second servile. It is only if the first be omitted that the word "servile" acquires a dishonorable connotation; then we can speak only of labor, and not of art. It need hardly be argued that our methods of manufacture are, in this shameful sense, servile, nor be denied that the industrial system, for which these methods are needed, is an abomination "unfit for free men". A system of manufacture governed by money values presupposes that there shall be two different kinds of makers, privileged artists who may be "inspired", and underprivileged laborers, unimaginative by hypothesis, since they are required only to make what other men have imagined, or more often only to copy what other men have already made. It has often been claimed that the productions of "fine" art are useless; it would seem to be a mockery to speak of a society as "free" where it is only the makers of useless things who are supposedly free.
+
+Inspiration is defined in Webster as "a supernatural influence which qualifies men to receive and communicate divine truth". This is stated in the word itself, which implies the presence of a guiding "spirit" distinguished from but nevertheless "within" the agent who is in-spired, but is certainly not inspired if "expressing himself". Before continuing, we must clear the air by showing how the word "inspire" has been scabrously abused by modern authors. We have found it said that "a poet or other artist may let the rain inspire him".[<sup>70</sup>](#70)<a id="note70"></a> Such misuse of words debar the student from ever learning what the ancient writers may have really meant. We say "misuse" because neither is the rain, or anything perceptible to sense, *in* us; nor is the rain a kind of *spirit*. The rationalist has a right to disbelieve in inspiration and to leave it out of his account, as he very easily can if he is considering art only from the aesthetic (sensational) point of view, but he has no right to pretend that one can be "inspired" by a sense perception, by which, in fact, one can only be "affected", and to which one can only "react". On the other hand, Meister Eckhart's phrase "inspired by his art" is quite correct, since art is a kind of knowledge, not anything that can be seen, but akin to the soul and prior to the body and the world.[<sup>71</sup>](#71)<a id="note71"></a> We can properly say that not only "Love" but "Art" and "Law" are names of the Spirit.
 
 
 
 
+<!-- página 35 -->
 
-
-
-
-<!-- página 34 -->
-
-[EM CONSTRUÇÃO - FALTAM CERCA DE 10 PÁGINAS]
+[EM CONSTRUÇÃO - FALTAM CERCA DE 7 PÁGINAS]
 
 
 ## Notes
@@ -221,3 +220,7 @@ Chuang-tzu, as quoted by Arthur Waley, *Three Ways of Thought in Ancient China* 
 *Republic* 395C. See Aristotle on "leisure", *Nicomachean Ethics* X.7.5-7.1177b.[↑](#note68)
 ##### 69
 *Republic* 377E, Symposium 196E.[↑](#note69)
+##### 70
+H. J. Rose, *A Handbook of Greek Mythology* (2d ed., London, 1933), p. 11. Clement Greenberg (in *The Nation*, April 19, 1941, p. 481) tells us that the "modern painter derives his inspiration from the very physical materials he works with". Both critics forget the customary distinction of spirit from matter. What their statements actually mean is that the modern artist may be excited, but is not inspired.[↑](#note70)
+##### 71
+Eckhart, Evans ed., II, 211; cf. *Laws* 892BC.[↑](#note71)
